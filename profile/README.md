@@ -2,7 +2,7 @@
 
 Dalam dunia gaming, khususnya *Mobile Legends*, top-up diamond adalah salah satu kebutuhan penting bagi pemain yang ingin memperkuat karakter dan mendapatkan berbagai item eksklusif. Salah satu situs top-up terpercaya yang banyak digunakan adalah **Codashop**. Dengan kepercayaan yang tinggi dari para pemain, Codashop telah menjadi pilihan utama untuk top-up *Mobile Legends* yang aman dan praktis.
 
-[![Toonup.store](https://i.ibb.co.com/T1kKMZK/eee3e65f9029b7b9d16fa5216c4a8e07.png)](https://toonup.store)
+[![Toonup.store](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjmmaD0zkUl82k8qk16wCXsSKtBkHvkV9ZFVTOtDve8LCr88K9Wbe3lE9EFNWsYLrFps0h7ggpKlrsDMqAFzXrX3Z2udjVAsXBZhOXa856y9Cyd9nMOW30xBgWWXscRCsBiWNFkdAQGBg_-i7yN1w0NieGByR1khBbbRmBGRUCbYkNW0JdK317oxfEWOPU/s16000/eee3e65f9029b7b9d16fa5216c4a8e07.png)](https://toonup.store)
 
 ## Mengapa Memilih Codashop untuk Top-Up Mobile Legends?
 Codashop memiliki beberapa keunggulan yang membuatnya layak menjadi pilihan bagi pemain *Mobile Legends*, antara lain:
@@ -19,7 +19,7 @@ Codashop adalah situs resmi yang bekerja sama langsung dengan pihak *Mobile Lege
 ### 4. Penawaran dan Diskon Menarik
 Codashop sering kali menawarkan promo, diskon, dan bonus diamond bagi para pengguna setianya. Ini tentu menjadi nilai tambah bagi pemain yang ingin top-up dengan harga yang lebih hemat.
 
-[![Toonup.store](https://i.ibb.co.com/T1kKMZK/eee3e65f9029b7b9d16fa5216c4a8e07.png)](https://toonup.store)
+[![Toonup.store](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjmmaD0zkUl82k8qk16wCXsSKtBkHvkV9ZFVTOtDve8LCr88K9Wbe3lE9EFNWsYLrFps0h7ggpKlrsDMqAFzXrX3Z2udjVAsXBZhOXa856y9Cyd9nMOW30xBgWWXscRCsBiWNFkdAQGBg_-i7yN1w0NieGByR1khBbbRmBGRUCbYkNW0JdK317oxfEWOPU/s16000/eee3e65f9029b7b9d16fa5216c4a8e07.png)](https://toonup.store)
 
 ## Cara Melakukan Top-Up Mobile Legends di Codashop
 Melakukan top-up di Codashop sangat mudah, bahkan bagi pemula sekalipun. Berikut adalah langkah-langkahnya:
